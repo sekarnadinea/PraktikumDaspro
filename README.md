@@ -2,4 +2,4 @@ Hello Github,ini adalah repository pertama saya. niggfa
 i'm ambatukam
 jomok
 
-Aku Duda anak 2
+Aku Duda anak 2 , aku di tinggal nikah 5 kali sama nana
